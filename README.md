@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @skribbler13
+- 👀 I’m interested in existence.
+- 🌱 I’m currently learning Japanese...
+- 📫 How to reach me... don't.
